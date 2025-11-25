@@ -1,20 +1,22 @@
 hi! i'm serena 🦩
 
-I'm a first year student @ grinnell college. 
-Interested field: fintech! 
+I'm a first year student @ Grinnell College.  
+Interested field: fintech!
 
 my alter egos are:
 
-> 🧠 psychology research assistant @University of Nevada-Las Vegas
-> 🌱 social media coordianator @superposition
-> 🐏 head of content @Genz O Melb
+> 🧠 psychology research assistant @ University of Nevada–Las Vegas  
+> 🌱 social media coordinator @ Superposition  
+> 🐑 head of content @ Genz O Melb  
 
 what am i doing now:
 
-> 📊 taking my first economics course! 
-> 🔍 experimenting with online couse & certifications 
-> 🦢 buiding my CS profiles (coming soon on Github 👀)
+> 📊 taking my first economics course!  
+> 🔍 experimenting with online courses & certifications  
+> 🦢 building my CS projects (coming soon on GitHub 👀)  
 
-excitement for 2026:
+upcoming plans: 
 
-> 🌺 going to Phillippines & Hawaii
+> ❄️ vacation to Vietnam for Winter Break
+> 🌺 going to the Philippines & Hawaii  
+
