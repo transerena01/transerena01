@@ -3,7 +3,7 @@ hi! i'm serena 🦩
 I'm a first-year student @ Grinnell College.  
 Interested field: fintech!
 
-my alter egos:
+my (past) alter egos:
 
 > 🧠 psychology research assistant @ University of Nevada–Las Vegas  
 > 🌱 social media coordinator @ Superposition  
