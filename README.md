@@ -18,6 +18,6 @@ what am I doing now:
 upcoming plans:
 
 > ❄️ vacation to Vietnam for Winter Break  
-> 🌺 going to the Philippines & Hawaii  
+> 🌺 travelling to the Philippines & Hawaii 2026
 
 <img src="https://i.pinimg.com/originals/e8/65/da/e865daa83ad348563868ce348245f0c4.gif" width="300">
