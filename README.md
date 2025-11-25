@@ -1,16 +1,17 @@
-## Hi there 👋
+hi! i'm serena 🦩
 
-<!--
-**transerena01/transerena01** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I'm a first year student @ grinnell college. 
+Interested field: fintech! 
 
-Here are some ideas to get you started:
+my alter egos are:
+>🧠 psychology research assistant @University of Nevada-Las Vegas
+>🌱 social media coordianator @superposition
+>🐏 head of content @Genz O Melb
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+what am i doing now:
+>📊 taking my first economics course! 
+>🔍 experimenting with online couse & certifications 
+>🦢 buiding my CS profiles (coming soon on Github 👀)
+
+excitement for 2026:
+>🌺 going to Phillippines & Hawaii
