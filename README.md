@@ -19,3 +19,5 @@ upcoming plans:
 
 > ❄️ vacation to Vietnam for Winter Break  
 > 🌺 going to the Philippines & Hawaii  
+
+<img src="https://i.pinimg.com/736x/e9/af/b8/e9afb8ab368ad37688058f728e91de2f.jpg" width="300">
