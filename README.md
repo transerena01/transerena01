@@ -3,12 +3,14 @@ hi! i'm serena 🦩
 I'm a first-year student @ Grinnell College.  
 Interested field: fintech!
 
+books, beauty, gym, matcha, badminton
+
 my (past) alter egos:
 
 > 🧠 psychology research assistant @ University of Nevada–Las Vegas  
 > 🌱 Director of Social Media @ Superposition  
 > 🐑 head of content @ Genz O Melb  
-> 🫧 Questbrige Scholar 
+> 🫧 Questbrige Scholar
 
 what am I doing now:
 
