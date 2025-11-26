@@ -6,8 +6,9 @@ Interested field: fintech!
 my (past) alter egos:
 
 > 🧠 psychology research assistant @ University of Nevada–Las Vegas  
-> 🌱 social media coordinator @ Superposition  
+> 🌱 Director of Social Media @ Superposition  
 > 🐑 head of content @ Genz O Melb  
+> 🫧 Questbrige Scholar 
 
 what am I doing now:
 
