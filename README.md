@@ -17,7 +17,7 @@ what am I doing now:
 > 📊 taking my first economics course!  
 > 🔍 experimenting with online courses & certifications  
 > 🦢 building my CS projects (coming soon on GitHub 👀) 
-> 🍵 collecting matcha powders...
+
 
 upcoming plans:
 
